@@ -16,6 +16,9 @@ contato pelo e-mail abaixo:
  Lindomar1802@gmail.com
 
 
+10/08/20 separados os capitulos e estão mais legiveis, pois antes todos os paragrafos estavam "encavalados" , não estou planejando editar os textos em inglês somente após a tradução irei me preocupar em organizar as paginas e  inserir as imagem contidas no livro.
+
+
 Obs : comprem o livro e ajudem o autor. este projeto e feito por um fan e nao busco de forma alguma
 substituir o livro. apenas servir de apoio aos que não dominam o idioma inglês. 
 
